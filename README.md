@@ -8,8 +8,6 @@
 
 -2 years expereince in customer care
 
--finished ds1,ds2,sekiro,elden ring
-
 -can do simple video&photo editing
 
 -born in 2004
